@@ -26,4 +26,7 @@ A growth mindset believes that one’s fundamental abilities can be developed th
 - fails to reach full potential 
 
 
+![Sarah](https://www.coderomeos.org/storage/uploads/images/posts/how-to-use-github-simple-github-tutorial-for-beginners-5d75f561e98d4.png)
 
+# ***Advice***
+"Everyone Should be growth mindest, a little more effort to achieve the goals"
